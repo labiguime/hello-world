@@ -1,7 +1,7 @@
 # hello-world
 Let's uphold the tradition!
 
-My name is Léo and I'm passionate about solving problems.
+My name is Léo and I'm passionate about problem solving.
 
 "To her, who opened my mind... 6 years ago" -me
 
