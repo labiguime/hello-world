@@ -3,7 +3,7 @@ Let's uphold the tradition!
 
 My name is Léo and I'm passionate about problem solving.
 
-"To her, who opened my mind... 6 years ago" -me
+"To her, who opened my mind... 8 years ago" -me
 
 	(07/03/2012) GM bronyfied ! Welcome to the herd !
 	      ..,::~~~~~=~~~,, .:~~
